@@ -1,0 +1,1 @@
+# BUSINESS-MODEL-GENERATION-book-summary
